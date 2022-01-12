@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FunnyLittleFox, also B Flaherty
+- 👀 I’m interested in video games, movies, books, anything that tells a good story
+- 🌱 I’m currently learning software programming
+- 💞️ I’m looking to collaborate on future school projects
+- 📫 How to reach me ...
